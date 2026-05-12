@@ -1,1 +1,1 @@
-povtorenie dz new
+povtorenie dz new vetka
