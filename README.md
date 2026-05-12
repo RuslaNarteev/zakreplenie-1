@@ -1,1 +1,1 @@
-povtorenie dz
+povtorenie dz new
