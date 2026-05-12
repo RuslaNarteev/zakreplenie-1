@@ -1,1 +1,1 @@
-povtorenie dz new vetka
+povtorenie dz new vetka izmenil
